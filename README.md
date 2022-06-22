@@ -1,1 +1,2 @@
 
+Very soon | Çok Yakında
